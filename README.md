@@ -2,7 +2,7 @@
 - 👀 I’m interested in all 🏳️‍🌈Yaoi👨‍❤️‍👨 Things
 - 🌱 I’m currently learning ICT/CSS/Java/Oracle and it'll be great if you could help. 
 - 💞️ I’m looking to collaborate on nothing right now because I haven't even known how to properly use codes. 
-- 📫 You can Contact me through my School/work email address: markxyruz.magnampo@gmail.com or through my Facebook Xyruz Magnampo.
+- 📫 You can Contact me through my School/work email address: mxgm2023-3616-46744@bicol-u.edu.ph, markxyruz.magnampo@gmail.com or through my Facebook Xyruz Magnampo.
 
 <!---
 XY0511/XY0511 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
